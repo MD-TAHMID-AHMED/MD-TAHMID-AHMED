@@ -1,20 +1,20 @@
-no<p align="middle"><img width="300px" src="https://raw.githubusercontent.com/JAYED-HOSEN/MD-TAHMID-AHMED/main/Picsart_23-08-01_21-16-47-330.png"/></p>
+no<p align="middle"><img width="300px" src="https://raw.githubusercontent.com/MD-TAHMID-AHMED/Img/refs/heads/main/images.jpeg"/></p>
 
-<p align="center"><img src="https://img.shields.io/badge/MADE%20IN BANGLADESHI-SPAMMAR AND PROGRAMMER-green?colorA=%23ff0000&colorB=%23017e40&style=flat-square">
+<p align="center"><img src="https://img.shields.io/badge/ BLACK HATE HACKER-green?colorA=%23ff0000&colorB=%23017e40&style=flat-square">
  
 <h3 align="center">
-  <img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
+  <img src="https://capsule-render.vercel.app/api?type=rect&color=8B0000&height=5&section=header&width=1000" width="25">
     MD-TAHMID-AHMED (MR-DEVIL)
-  <img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
+  <img src="https://capsule-render.vercel.app/api?type=rect&color=8B0000&height=5&section=header&width=1000" width="25">
 </h3>
  
-<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-1.svg">
+<img align="center" alt="line" src="https://capsule-render.vercel.app/api?type=rect&color=8B0000&height=5&section=header&width=1000">
  
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23F70B10&size=27&lines=I+AM+MR+DEVIL;+It's+Not+A+Just+Name+Bro;It's+A+Brand;Thank+You+Everyone+LvuAll)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23F70B10&size=27&lines=HI+I+AM+MR+DEVIL)](https://git.io/typing-svg)
  
 </p>
  
-<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-1.svg">
+<img align="center" alt="line" src="https://capsule-render.vercel.app/api?type=rect&color=8B0000&height=5&section=header&width=1000">
  
 <h3 align="center">HACKING SCRIPT DEVELOPER</h3>
  
@@ -25,47 +25,47 @@ no<p align="middle"><img width="300px" src="https://raw.githubusercontent.com/JA
 <a href="https://github.com/MD-TAHMID-AHMED"><img title="trophy" src="https://github-profile-trophy.vercel.app/?username=MD-TAHMID-AHMED&theme=monokai"></a>
  
  
-<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
+<img align="center" alt="line" src="https://capsule-render.vercel.app/api?type=rect&color=8B0000&height=5&section=header&width=1000">
  
 - 😏 𝐍𝐀𝐌𝐄:- MD-TAHMID-AHMED
  
-<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
+<img align="center" alt="line" src="https://capsule-render.vercel.app/api?type=rect&color=8B0000&height=5&section=header&width=1000">
  
 - 🤨 𝐇𝐎𝐁𝐁𝐘 :- 𝗣𝗥𝗢𝗚𝗥𝗔𝗠𝗠𝗜𝗡𝗚
  
-<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
+<img align="center" alt="line" src="https://capsule-render.vercel.app/api?type=rect&color=8B0000&height=5&section=header&width=1000">
  
 - 📕 𝐄𝐃𝐔𝐂𝐀𝐓𝐈𝐎𝐍:- 𝐎𝐍𝐋𝐘 𝐌𝐄😁
  
-<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
+<img align="center" alt="line" src="https://capsule-render.vercel.app/api?type=rect&color=8B0000&height=5&section=header&width=1000">
  
 - ❤ 𝐋𝐎𝐕𝐄𝐑:- 𝐀𝐋𝐎𝐍𝐄
  
-<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
+<img align="center" alt="line" src="https://capsule-render.vercel.app/api?type=rect&color=8B0000&height=5&section=header&width=1000">
  
 - 👉 𝐈𝐍𝐒𝐋𝐈𝐑𝐀𝐓𝐈𝐎𝐍:- 𝐌𝐘𝐒𝐄𝐋𝐅
  
-<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
+<img align="center" alt="line" src="https://capsule-render.vercel.app/api?type=rect&color=8B0000&height=5&section=header&width=1000">
  
 - 🤲🏻 𝐑𝐄𝐋𝐈𝐆𝐈𝐎𝐍:- 𝐈𝐒𝐋𝐀𝐌
  
-<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
+<img align="center" alt="line" src="https://capsule-render.vercel.app/api?type=rect&color=8B0000&height=5&section=header&width=1000">
  
 - 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊:- [𝐌𝐃 𝐓𝐀𝐇𝐌𝐈𝐃 𝐀𝐇𝐌𝐄𝐃](https://www.facebook.com/MR.DEVIL.JAYED)
  
-<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
+<img align="center" alt="line" src="https://capsule-render.vercel.app/api?type=rect&color=8B0000&height=5&section=header&width=1000">
  
 - 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊 𝐏𝐀𝐆𝐄:- [𝐌𝐑-𝐃𝐄𝐕𝐈𝐋](https://www.facebook.com/profile.php?id=100094252032142)
  
-<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
+<img align="center" alt="line" src="https://capsule-render.vercel.app/api?type=rect&color=8B0000&height=5&section=header&width=1000">
  
 - 💻𝐆𝐈𝐓𝐇𝐔𝐁:- [JAYED-HOSEN](https://github.com/JAYED-HOSEN)
  
-<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
+<img align="center" alt="line" src="https://capsule-render.vercel.app/api?type=rect&color=8B0000&height=5&section=header&width=1000">
  
 - ⚡ Fun fact **SERIOUS𝐒𝐄𝐑𝐈𝐎𝐔𝐒**
  
-<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
+<img align="center" alt="line" src="https://capsule-render.vercel.app/api?type=rect&color=8B0000&height=5&section=header&width=1000">
  
  
 ### ⚙️   Language & programming
